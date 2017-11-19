@@ -1,0 +1,2 @@
+# botgay
+moi pidor
